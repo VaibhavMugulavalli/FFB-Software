@@ -7,7 +7,7 @@ https://drive.google.com/file/d/1dFodY0JMd1Zus-dpL6rc9sn5_ZQrh1Fu/view?usp=shari
 
 https://drive.google.com/file/d/1jzuI_XRrYAmIDb8WQBaR1ecgHY0GVwmI/view?usp=sharing----> Hex file link
 
-https://drive.google.com/file/d/1VczGAnaGVr88pujO74mwC74B1h6l0ewE/view?usp=sharing---->EMC utility lite software
+https://drive.google.com/file/d/1VczGAnaGVr88pujO74mwC74B1h6l0ewE/view?usp=sharing----> EMC utility lite software
 
 Wiring will be uploaded soon
 
